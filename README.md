@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @antevasin2049
-- 👀 I’m interested in learn new things.
-- 🌱 I’m currently learning about blockchain, crypto and English. 
+- 👀 I’m interested in explorers of truth, wisdom, and self-discovery are always in a state of learning and growth. 
+- 🌱 I’m currently living a nomadic lifestyle, learning about blockchain, crypto and English. 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me antevasin2049@gmail.com; waterlily2046@foxmail.com
+- 📫 How to reach me antevasin2049@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
